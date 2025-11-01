@@ -18,6 +18,6 @@ also pls inform me if i did something bad so i can change!!
 
 I usually use my KAITO pony! You might sometimes find me in my Ena skins heh.. Just ask me if you wanna be friends OK. PLEASE C*H SOBS IM LONELY...
 
-I like KAIMEI GakuKAI Mizuena Akitoya Anhane Kanamafu MizuMafu Kanaena NikaReka VikaiNikai and ETC.
+I like KAIMEI GakuKAI Mizuena Akitoya Anhane Kanamafu MizuMafu Kanaena NikaReka VikaiNikai and ETC. (ships int... haha...)
 
 note: i have HORRIBLE wifi.
