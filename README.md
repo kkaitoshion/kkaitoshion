@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=kkaitoshion)
 
-"Don't stop the music, darling !"
+<p align="center">"Don't stop the music, darling !"</p>
 
 ![image](https://i.pinimg.com/1200x/36/4f/46/364f46046b818ebb719ce9130ea3467f.jpg)
 
