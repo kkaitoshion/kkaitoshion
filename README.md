@@ -19,4 +19,4 @@ i love kaito yaoi nggnnhh gakukai kiyokai PLZ I LOVE THEHM. ships int yaahooooo.
 
 im going to be honest i dont realy mind if u copy my skins because i lowk find it funny but plz be creative and make ur own anyways inspo is fine. YES you'll mostly see me using my kaito skins. i love kaito kaito is da goat. RECCOMEND ME SOME KAITO SONGS TWIN i love listening to him screaming in my ears
 
-ilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaito
+ilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaitoilovekaito i lobe u so muhc kaito
