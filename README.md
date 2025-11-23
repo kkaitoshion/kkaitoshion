@@ -1,8 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=kkaitoshion)
 
-<p align="center">"【エイプリルフールver.】夜もすがら君想ふ / Devoted Evil"</p>
+<p align="center">my emotions</p>
 
-![image](https://i.pinimg.com/1200x/36/4f/46/364f46046b818ebb719ce9130ea3467f.jpg)
+<p align="center">
+  <img width="460" height="300" src="https://file.garden/aSJbsl0SJQxLqVG5/Screenshot_20251122_162924_edit_26393980407379.webp">
+</p>
 
 you can call me ena or nat im fine with those two. im a minor, any age can int with me just PLEASEPLEASEPLEAASE dont be weird..
 
