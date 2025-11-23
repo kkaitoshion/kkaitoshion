@@ -3,6 +3,6 @@
 <p align="center">⟢  me and gang  </p>
 
 <p align="center">
-  <img width="460" height="300" src="https://file.garden/aSJbsl0SJQxLqVG5/Screenshot_20251122_162924_edit_26393980407379.webp">
+  <img width="460" height="300" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled411_20251124003508.png">
 </p>
 
