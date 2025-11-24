@@ -1,4 +1,4 @@
-<p align="center">![](https://komarev.com/ghpvc/?username=user&label=♪&color=000000)</p>
+SOYP
 
 <p align="center">⟢  me and gang  </p>
 
