@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=kkaitoshion&label=♪&color=blue)
+![](https://komarev.com/ghpvc/?username=kkaitoshion&label=labubu&color=blue)
 
 <p align="center">⟢  me and gang  </p>
 
