@@ -1,4 +1,4 @@
-oops
+<p align="center">![](https://komarev.com/ghpvc/?username=user&label=♪&color=000000)</p>
 
 <p align="center">⟢  me and gang  </p>
 
