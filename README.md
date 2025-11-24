@@ -1,4 +1,4 @@
-SOYP
+![](https://komarev.com/ghpvc/?username=kkaitoshion&label=♪&color=blue)
 
 <p align="center">⟢  me and gang  </p>
 
