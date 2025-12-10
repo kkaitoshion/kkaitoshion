@@ -7,4 +7,4 @@
 </p>
 <h5 align="center"> 
 
-[carrd](kkaitoshion.carrd.co/)     [atabook](kkaitoshion.atabook.org/)     [rentry](rentry.co/kkaitoshionn)
+[carrd](https://kkaitoshion.carrd.co/)     [atabook](kkaitoshion.atabook.org)     [rentry](rentry.co/kkaitoshionn)
