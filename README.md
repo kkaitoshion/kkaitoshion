@@ -5,4 +5,6 @@
 <p align="center">
   <img width="400" height="400" src="https://i.pinimg.com/736x/8d/9b/80/8d9b8087a2d76ec73e7cc81d1aba3b5b.jpg">
 </p>
+<h5 align="center"> 
 
+[carrd](kkaitoshion.carrd.co/)     [atabook](kkaitoshion.atabook.org/)     [rentry](rentry.co/kkaitoshionn)
