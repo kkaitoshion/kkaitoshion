@@ -3,4 +3,4 @@
 </p>
 <h5 align="center"> 
 
-[carrd](https://kkaitoshion.carrd.co/)     [atabook](https://kkaitoshion.atabook.org/)    [strwpg](https://ky0kokaito.straw.page/)
+[carrd](https://kkaitoshion.carrd.co/)   ✦  [atabook](https://kkaitoshion.atabook.org/)  ✦  [strwpg](https://ky0kokaito.straw.page/)
