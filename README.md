@@ -1,9 +1,5 @@
 <p align="center">
-  <img width="500" height="500" src="https://i.postimg.cc/3rFhkX8M/24.png">
-</p>
-<p align="center">art by me omg gakukai</p>
-<p align="center">
-  <img width="300" height="400" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled475_20260101122150.png">
+  <img width="1000" height="1000" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled481_20260103154454.png">
 </p>
 <h5 align="center"> 
 
