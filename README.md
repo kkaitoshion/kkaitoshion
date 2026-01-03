@@ -4,3 +4,8 @@
 <h5 align="center"> 
 
 [carrd](https://kkaitoshion.carrd.co/)   ✦  [atabook](https://kkaitoshion.atabook.org/)  ✦  [strwpg](https://ky0kokaito.straw.page/)
+</h5>
+
+<p align="center">
+  <img width="700" height="700" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled481_20260103164800.png">
+</p>
