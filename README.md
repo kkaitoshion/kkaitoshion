@@ -3,7 +3,7 @@
 </p>
 <h5 align="center"> 
 
-[carrd](https://kkaitoshion.carrd.co/)ㅤ✦ㅤ[atabook](https://kkaitoshion.atabook.org/)ㅤ✦ㅤ[strwpg](https://ky0kokaito.straw.page/)ㅤ✦ㅤ[trio-rentry](https://rentry.co/trioniigo)
+[rentry](https://rentry.co/3du5gosz)ㅤ✦ㅤ[atabook](https://kkaitoshion.atabook.org/)ㅤ✦ㅤ[strwpg](https://ky0kokaito.straw.page/)ㅤ✦ㅤ[trio-rentry](https://rentry.co/trioniigo)
 </h5>
 
 <p align="center">
