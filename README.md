@@ -1,3 +1,8 @@
+<h5 align="center"> 
+
+  hello to those in the pjsk area... [this is the reply to the call-out mafu @snowedribbqns doc](https://rentry.co/theproofaboutmafu). feel free to read if ure wondering whats happening. pls dont harass any of the people mentioned here, thank yuo!!!!!!
+
+</h5>
 
 <p align="center">
   <img width="1000" height="1000" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled481_20260103154454.png">
