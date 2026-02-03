@@ -1,4 +1,12 @@
-
+<h5 align="center"> 
+  
+  hllow i wont be that active for now, ill be more active in summer break🥹 pt is getting boring 
+  </h5>
+  
+  <h5 align="center">
+    
+  mostly active on discord [tiktok](https://www.tiktok.com/@homotron6000) and [insta](https://www.instagram.com/yaoitron6000?igsh=MWlnb3B3OGQ0d3Z4MA==) find me there brotato
+</h5>
 <p align="center">
   <img width="1000" height="1000" src="https://file.garden/aSJbsl0SJQxLqVG5/Untitled481_20260103154454.png">
 </p>
