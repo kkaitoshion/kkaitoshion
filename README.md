@@ -12,7 +12,7 @@
 </p>
 <h5 align="center"> 
 
-[atabook](https://kkaitoshion.atabook.org/)ㅤ✦ㅤ[sharedrentry](https://rentry.co/nutellapretzel)ㅤ✦ㅤ[rentry](https://rentry.co/gakukaiyaoii) </h5>
+[atabook](https://kkaitoshion.atabook.org/)ㅤ✦ㅤ[shared rentry](https://rentry.co/nutellapretzel)ㅤ✦ㅤ[rentry](https://rentry.co/gakukaiyaoii)ㅤ✦ㅤ[strwpg](https://kalto-shion.straw.page) </h5>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
